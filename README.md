@@ -1,1 +1,0 @@
-# bschneider-webdevhq.github.io
